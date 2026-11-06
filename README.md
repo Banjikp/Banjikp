@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Everything, especially game development.**
 
-- 💬 Ask me about **games**
+- 💬 Ask me about **Games.**
 
 - 📫 How to reach me **mathewjovan09@gmail.com**
 
